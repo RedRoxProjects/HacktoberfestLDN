@@ -1,2 +1,3 @@
 # HacktoberfestLDN
-A list of all the folks at the Hacktoberfest LDN events
+A list of all the folks at the Hacktoberfest LDN events\
+Giulio (grids)
