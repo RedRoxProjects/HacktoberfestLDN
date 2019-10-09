@@ -7,4 +7,4 @@ Akibul Hoque - AKi47 :)
 
 Amy RedRoxProjects :sparkles:
 
-Helloo! It's @Babadzhanov :ok_hand:
+Helloo! It's Simon @Babadzhanov :ok_hand:
