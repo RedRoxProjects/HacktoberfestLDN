@@ -9,4 +9,6 @@ Amy RedRoxProjects :sparkles:
 
 Helloo! It's Simon @Babadzhanov :ok_hand:
 
+Hi! I am Kateryna Havrenko!
+
 Hi! It's @DaveBrine 
