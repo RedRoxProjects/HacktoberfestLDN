@@ -8,3 +8,5 @@ Akibul Hoque - AKi47 :)
 Amy RedRoxProjects :sparkles:
 
 Helloo! It's Simon @Babadzhanov :ok_hand:
+
+Hi, this is Seb! @vettelgeuse 🧉 (this emoji should be ready by december hopefully!
