@@ -9,6 +9,7 @@ Amy RedRoxProjects :sparkles:
 
 Helloo! It's Simon @Babadzhanov :ok_hand:
 
+¡Hello! -  @dcosb
 
 Hello Devs!! @RodolfoBrian :sparkles:
 
