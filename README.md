@@ -7,6 +7,8 @@ Akibul Hoque - AKi47 :)
 
 Amy RedRoxProjects :sparkles:
 
+Palmaz Ahmad - palmazahmad
+
 Den Rey @denalcubo :heart:
 
 Helloo! It's Simon @Babadzhanov :ok_hand:
