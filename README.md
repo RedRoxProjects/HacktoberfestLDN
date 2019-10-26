@@ -7,6 +7,8 @@ Akibul Hoque - AKi47 :)
 
 Amy RedRoxProjects :sparkles:
 
+SteveAmor waz here.  Check out my [repo](https://github.com/steveAmor)
+
 Den Rey @denalcubo :heart:
 
 Helloo! It's Simon @Babadzhanov :ok_hand:
