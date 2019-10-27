@@ -15,6 +15,8 @@ Helloo! It's Simon @Babadzhanov :ok_hand:
 
 ¡Hello! -  @dcosb
 
+Hi! I am Tomas @hercegtomas :fire: 
+
 Hello Devs!! @RodolfoBrian :sparkles:
 
 Hi, this is Seb! @vettelgeuse 🧉 (this emoji should be ready by december hopefully!
