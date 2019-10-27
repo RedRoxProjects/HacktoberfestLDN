@@ -7,6 +7,8 @@ Akibul Hoque - AKi47 :)
 
 Amy RedRoxProjects :sparkles:
 
+Colin here! @woodwardwebdev :)
+
 SteveAmor waz here.  Check out my [repo](https://github.com/steveAmor)
 
 Den Rey @denalcubo :heart:
@@ -25,3 +27,4 @@ Hi! I am Kateryna Havrenko!
 Hi! It's @DaveBrine 
 
 Hey! My name is Keivon
+
