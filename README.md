@@ -5,8 +5,9 @@ Hi!  It's @SuzeShardlow here 😀
 
 Akibul Hoque - AKi47 :)
 
-Amy RedRoxProjects :sparkles:
+Iss ya boi Dawud Iqbal - DrgnAI 😎😉
 
+Amy RedRoxProjects :sparkles:
 SteveAmor waz here.  Check out my [repo](https://github.com/steveAmor)
 
 Den Rey @denalcubo :heart:
@@ -25,5 +26,6 @@ Hi! I am Kateryna Havrenko!
 Hi! It's @DaveBrine 
 
 Hey! My name is Keivon
+
 
 Hey, it's Tugay Uzunoglu - @tuzun89.
