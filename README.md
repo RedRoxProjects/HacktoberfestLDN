@@ -26,4 +26,7 @@ Hi! It's @DaveBrine
 
 Hey! My name is Keivon
 
+Hey! My name is Jack
+
 Hey, it's Tugay Uzunoglu - @tuzun89.
+
