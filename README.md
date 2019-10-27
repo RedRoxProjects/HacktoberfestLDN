@@ -8,7 +8,6 @@ Akibul Hoque - AKi47 :)
 Iss ya boi Dawud Iqbal - DrgnAI 😎😉
 
 Amy RedRoxProjects :sparkles:
-
 SteveAmor waz here.  Check out my [repo](https://github.com/steveAmor)
 
 Den Rey @denalcubo :heart:
@@ -29,4 +28,4 @@ Hi! It's @DaveBrine
 Hey! My name is Keivon
 
 
-
+Hey, it's Tugay Uzunoglu - @tuzun89.
