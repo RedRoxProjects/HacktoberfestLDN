@@ -5,6 +5,8 @@ Hi!  It's @SuzeShardlow here 😀
 
 Akibul Hoque - AKi47 :)
 
+Kilian - touringkg
+
 Amy RedRoxProjects :sparkles:
 
 SteveAmor waz here.  Check out my [repo](https://github.com/steveAmor)
